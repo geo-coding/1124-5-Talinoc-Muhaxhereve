@@ -39,6 +39,8 @@ Rrustem (Rexhep) Shahani
 591-9383511-27
 +38344325457
 Rr. "Epopeja Jezercit"
+01124-5
+Talinoc I Muhaxherëve
 
 -- data --
 05.08.2025

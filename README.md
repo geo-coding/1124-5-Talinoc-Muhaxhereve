@@ -40,4 +40,7 @@ Rrustem (Rexhep) Shahani
 +38344325457
 Rr. "Epopeja Jezercit"
 
+-- data --
+05.08.2025
+
 ```
